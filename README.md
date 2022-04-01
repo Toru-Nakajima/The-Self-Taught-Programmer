@@ -1,1 +1,1 @@
-# The-Self-Taoght-Programmer
+# The-Self-Taught-Programmer
